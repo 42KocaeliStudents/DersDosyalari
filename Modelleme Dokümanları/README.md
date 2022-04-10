@@ -1,1 +1,0 @@
-Modelleme öğrenme pdfleri
